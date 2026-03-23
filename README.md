@@ -1,1 +1,0 @@
-# soffcrm-admin-app-privacy-policy
